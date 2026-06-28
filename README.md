@@ -13,8 +13,8 @@
 
 ۫ ׅㅤㅤㅤㅤㅤㅤㅤ۫ ׅ♰ 𓈒 sᥱr᥎ᥱr : `safe 1` ﾉ area :`UT` or `FNF` ✙
 
-﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤcurrently seeking for ( ``𝐋𝐎𝐕𝐄`` )  ⧽    —   he / him
+﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤcurrently seeking for ( `𝐋𝐎𝐕𝐄` )  ⧽    —   he / him
 		 
-　  ♡ 　i love horrordust   ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
+　  ~~♡~~ 　i love `horrordust`   ׅㅤㅤㅤㅤㅤ / _rentry_ still in wip　
 	 
 ㅤㅤㅤㅤㅤㅤㅤ₊　 　　⌓⌓ 　   　 ( omnisexual )　  　﹕　　i have `m᥆᥆ძ` swings
