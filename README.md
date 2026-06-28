@@ -7,14 +7,14 @@
 
 ㅤㅤㅤㅤㅤһᥲrძᥴ᥆rᥱㅤᵈᵘˢᵗ kin ㅤㅤㅤㅤㅤ  ۫ ׅ      ask for s᥆ᥴіᥲᥣs ₊⊹  ⧽ very shy introvert .
 
-ㅤㅤㅤㅤㅤㅤㅤ⟢ `kisses` is mostly allowed for friends
+ㅤㅤㅤㅤㅤㅤㅤ⟢ `kisses` is mostly allowed for friends only
 
-  ۫ㅤㅤㅤㅤㅤㅤㅤ╋━ㅤㅤㅤㅤㅤㅤㅤ† `c+h` is only allowed when displayed so .
+  ۫ㅤㅤㅤㅤㅤㅤㅤ╋━ㅤㅤㅤㅤㅤㅤㅤ† `c+h` is allowed at all times !
 
 ۫ ׅㅤㅤㅤㅤㅤㅤㅤ۫ ׅ♰ 𓈒 sᥱr᥎ᥱr : `safe 1` ﾉ area :`UT` or `FNF` ✙
 
-﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤㅤㅤㅤ⧽ 🏳️‍⚧️   —   he / him
+﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤcurrently seeking for _𝐋𝐎𝐕𝐄_  ⧽    —   he / him
 		 
 　  ♡ 　i love horrordust   ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
 	 
-ㅤㅤㅤㅤㅤㅤㅤ₊　 　　⌓⌓ 　   　 omnisexual　  　﹕　　 `m᥆᥆ძ` swings
+ㅤㅤㅤㅤㅤㅤㅤ₊　 　　⌓⌓ 　   　 omnisexual　  　﹕　　i have `m᥆᥆ძ` swings
