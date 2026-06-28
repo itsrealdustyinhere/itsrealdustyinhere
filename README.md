@@ -1,0 +1,20 @@
+## * It's . . . so *cold* .
+† 　　 ﹒　 　`⁶`teen　　 @ᥒᥱᥣ 　　 ♱۫ ׅ
+
+　　　　　ノ  　isfp-t 　 　αᑯᑯ + adhd　 　⟡
+		 
+　　 ׅ　　　　　　　( `⁰¹⁰⁷` )　　trad/_digital_ artist　　⋌　　im quite boring .
+
+ㅤㅤㅤㅤㅤһᥲrძᥴ᥆rᥱㅤᵈᵘˢᵗ kin ㅤㅤㅤㅤㅤ  ۫ ׅ      ask for s᥆ᥴіᥲᥣs ₊⊹  ⧽ very shy introvert .
+
+ㅤㅤㅤㅤㅤㅤㅤ⟢ `kisses` is mostly allowed for friends
+
+  ۫ㅤㅤㅤㅤㅤㅤㅤ╋━ㅤㅤㅤㅤㅤㅤㅤ† `c+h` is only allowed when displayed so .
+
+۫ ׅㅤㅤㅤㅤㅤㅤㅤ۫ ׅ♰ 𓈒 sᥱr᥎ᥱr : `safe 1` ﾉ area :`UT` or `FNF` ✙
+
+﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤㅤㅤㅤ⧽ 🏳️‍⚧️   —   he / him
+		 
+　  ♡ 　i love horrordust   ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
+	 
+ㅤㅤㅤㅤㅤㅤㅤ₊　 　　⌓⌓ 　   　 omnisexual　  　﹕　　 `m᥆᥆ძ` swings
