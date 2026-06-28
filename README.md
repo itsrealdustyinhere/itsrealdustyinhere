@@ -15,6 +15,6 @@
 
 ﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤㅤㅤㅤ⧽ 🏳️‍⚧️   —   he / him
 		 
-　  don't be `weird` when int with me 　        ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
+　  ♡ 　i love horrordust   ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
 	 
-₊　 　　⌓⌓ 　   　 omnisexual　  　﹕　　 `m᥆᥆ძ` swings
+ㅤㅤㅤㅤㅤㅤㅤ₊　 　　⌓⌓ 　   　 omnisexual　  　﹕　　 `m᥆᥆ძ` swings
