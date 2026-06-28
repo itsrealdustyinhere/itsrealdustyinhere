@@ -1,16 +1,23 @@
-## Hi there 👋
+## * It's . . . so *cold* .
+† 　　 ﹒　 　`⁶`teen　　 @ᥒᥱᥣ 　　 ♱۫ ׅ
 
-<!--
-**itsrealdustyinhere/itsrealdustyinhere** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+　　　　　ノ  　isfp-t 　 　αᑯᑯ + adhd　 　⟡
+		 
+　　 ׅ　　　　　　　( `⁰¹⁰⁷` )　　trad/_digital_ artist　　⋌　　im quite boring .
 
-Here are some ideas to get you started:
+ㅤㅤㅤㅤㅤㅤᵈᵘˢᵗ ᵏⁱⁿ ㅤㅤㅤㅤㅤㅤㅤㅤ  ۫ ׅ      ask for s᥆ᥴіᥲᥣs ₊⊹  ⧽ very shy introvert .
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+ㅤㅤㅤㅤㅤㅤㅤ⟢ `kisses` is mostly allowed for friends
+
+  ۫ㅤㅤㅤㅤㅤㅤㅤ╋━ㅤㅤㅤㅤㅤㅤㅤ† `c+h` is only allowed when displayed so .
+
+	
+۫ ׅㅤㅤㅤㅤㅤㅤㅤ۫ ׅ♰ 𓈒 sᥱr᥎ᥱr : `safe 1` ﾉ area :`UT` or `FNF` ✙
+
+﹒　    　 †　　　    𓈒　   　　lazy　    　　₎ㅤㅤㅤㅤㅤㅤㅤ⧽ 🏳️‍⚧️   —   he / him
+		 
+　  don't be `weird` when int with me 　        ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
+	 
+₊　 　　⌓⌓ 　   　 ⠀　  　﹕　　 `m᥆᥆ძ` swings
+
+more to come !! 
