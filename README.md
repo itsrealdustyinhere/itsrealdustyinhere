@@ -5,19 +5,16 @@
 		 
 　　 ׅ　　　　　　　( `⁰¹⁰⁷` )　　trad/_digital_ artist　　⋌　　im quite boring .
 
-ㅤㅤㅤㅤㅤㅤᵈᵘˢᵗ ᵏⁱⁿ ㅤㅤㅤㅤㅤㅤㅤㅤ  ۫ ׅ      ask for s᥆ᥴіᥲᥣs ₊⊹  ⧽ very shy introvert .
+ㅤㅤㅤㅤㅤㅤᵈᵘˢᵗ ᵏⁱⁿ ㅤㅤㅤㅤㅤ  ۫ ׅ      ask for s᥆ᥴіᥲᥣs ₊⊹  ⧽ very shy introvert .
 
 ㅤㅤㅤㅤㅤㅤㅤ⟢ `kisses` is mostly allowed for friends
 
   ۫ㅤㅤㅤㅤㅤㅤㅤ╋━ㅤㅤㅤㅤㅤㅤㅤ† `c+h` is only allowed when displayed so .
 
-	
 ۫ ׅㅤㅤㅤㅤㅤㅤㅤ۫ ׅ♰ 𓈒 sᥱr᥎ᥱr : `safe 1` ﾉ area :`UT` or `FNF` ✙
 
-﹒　    　 †　　　    𓈒　   　　lazy　    　　₎ㅤㅤㅤㅤㅤㅤㅤ⧽ 🏳️‍⚧️   —   he / him
+﹒　    　 †　　　    𓈒　   　　rus , eng , 　    　　₎ㅤㅤㅤㅤㅤㅤㅤ⧽ 🏳️‍⚧️   —   he / him
 		 
 　  don't be `weird` when int with me 　        ׅㅤㅤㅤㅤㅤ / _rentry_ still wip　
 	 
-₊　 　　⌓⌓ 　   　 ⠀　  　﹕　　 `m᥆᥆ძ` swings
-
-more to come !! 
+₊　 　　⌓⌓ 　   　 omnisexual　  　﹕　　 `m᥆᥆ძ` swings
